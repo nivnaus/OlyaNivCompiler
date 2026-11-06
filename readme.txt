@@ -1,2 +1,2 @@
-Olga Oznovich 212969315
-Niv Naus 316197227
+Olga Oznovich
+Niv Naus
